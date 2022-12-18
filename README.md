@@ -76,7 +76,7 @@ I play the colorful and emotional counterpart of Hans, a painter who only uses t
 
 We were supposed to select a painting, and then write a scene based off of it. Greta and I chose Gelb, Rot, Blau (Yellow, Red, Blue) by Wassily Kandinsky
 
-![Gelb, Rot, Blau],(https://www.wassily-kandinsky.org/images/gallery/Yellow-Red-Blue.jpg “Gelb, Rot, Blau by Wassily Kandinsky”)
+![Gelb, Rot, Blau],(painting.png “Gelb, Rot, Blau by Wassily Kandinsky”)
 
 [Our script.](https://docs.google.com/document/d/1O6J4OiD2z64Hh9T2vhiHyb6Kc8MJzBzJJ2PPWdsr58o/)
 
