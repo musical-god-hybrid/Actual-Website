@@ -2,6 +2,8 @@
 
 All of my theater stuff
 
+Follow the [Theater Plushies Account](https://www.instagram.com/theater_plushies/)
+
 ## Shrek Jr. (2016)
 
 #### Role: Dwarf (Lord Farquad's father/"Daddy?")
