@@ -176,5 +176,8 @@ At auditions I did bad at singing, okay at acting (my strong suit…), and then 
 #### What it Is: ABC district musical (2023)
 
 I’m am very, very excited for this (Addams Family fan here).
+I also designed the auditions poster:
+
+![Auditions Poster]()
 
 #### Overall Experience: Pending.
