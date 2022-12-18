@@ -14,7 +14,7 @@ Whitney’s drama camp program for 2016. Was entering 4th grade and happened to 
 
 #### Overall Experience: Fun AF (10/10)
 
-Got a dermatitis attack for most of the production time (which for a 9 year old would occupy  99% of my mind) but Darshan and Subway Surfers (It was THE S*** back then…) saved the day.
+Got a dermatitis attack for most of the production time (which for a 9 year old would occupy 99% of my mind) but Darshan and Subway Surfers (It was THE S*** back then…) saved the day.
 
 #### For 4 years afterward I toiled, trying to find a meaning to my life. Then I stumbled upon the pilot…
 
@@ -178,6 +178,6 @@ At auditions I did bad at singing, okay at acting (my strong suit…), and then 
 I’m am very, very excited for this (Addams Family fan here).
 I also designed the auditions poster:
 
-![Auditions Poster]()
+![Auditions Poster](https://raw.githubusercontent.com/musical-god-hybrid/Actual-Website/main/auditions.png)
 
 #### Overall Experience: Pending.
