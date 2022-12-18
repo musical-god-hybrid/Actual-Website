@@ -142,7 +142,7 @@ I had blast during rehearsal despite sitting down and having my butt falling asl
 
 12 is above FUN AF. And I mean it when I say it was my favorite life experience so far.
 
-## (Upcoming) Shrek Jr. (2022)
+## Shrek Jr. (2022)
 
 #### Role: CREW!!! (Props Head)
 
@@ -152,7 +152,9 @@ Well, things certainly have come full circle, haven’t they? It is an honor to 
 
 I’m too old to perform, so I took the better option of working crew! (Crew > Cast).
 
-#### Overall Experience: Pending.
+#### Overall Experience: (Fun But Tiring AF) (9.9/10)
+
+These little middle schoolers drove me insane.
 
 ## (Upcoming) You’re a Good Man, Charlie Brown (2022)
 
