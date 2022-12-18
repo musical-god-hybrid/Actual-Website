@@ -132,7 +132,7 @@ It was an incredibly stressful journey (especially since I missed the first week
 
 #### Role: Mr. Boddy
 
-I basically plat dead for an hour and a half after a short appearance as the blackmailer begore it’s revealed after my death that I’m the actual butler.
+I basically played dead for an hour and a half after a short appearance as the blackmailer before it’s revealed after my death that I’m the actual butler.
 
 #### What it Was: Whitney High School fall play (2022)
 
@@ -140,7 +140,7 @@ I had blast during rehearsal despite sitting down and having my butt falling asl
 
 #### Overall Experience: (Fun AF)2 (12/10)
 
-12 isn’t 102, but it is 10 + 2. And I mean it when I say it was my favorite life experience so far.
+12 isn't 102 And I mean it when I say it was my favorite life experience so far.
 
 ## (Upcoming) Shrek Jr. (2022)
 
