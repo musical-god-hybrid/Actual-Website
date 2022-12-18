@@ -138,9 +138,9 @@ I basically played dead for an hour and a half after a short appearance as the b
 
 I had blast during rehearsal despite sitting down and having my butt falling asleep for hours.
 
-#### Overall Experience: (Fun AF)2 (12/10)
+#### Overall Experience: (Fun AF) (12/10)
 
-12 isn't 102 And I mean it when I say it was my favorite life experience so far.
+12 is above FUN AF. And I mean it when I say it was my favorite life experience so far.
 
 ## (Upcoming) Shrek Jr. (2022)
 
